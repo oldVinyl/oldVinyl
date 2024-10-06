@@ -1,7 +1,7 @@
 - 👋 @oldVinyl
 - 👀 I’m interested in Formula 1- jk, Robotics <3 (for F1, or NASA)
 - 🌱 I’m currently learning Front-End! (JS & React)
-- 💞️ I’m looking to collaborate on anything! (i learn fast...)
+- 💞️ I’m looking to collaborate on anything! (i learn fast...please hire me >;])
 - 📫 How to reach me: neamewu@gmail.com
 - 😄 Pronouns: She/Her/✨Milady✨
 - ⚡ Fun fact: 🩵Love Blue Hearts and F1🧡
